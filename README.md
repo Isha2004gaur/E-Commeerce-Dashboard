@@ -79,9 +79,4 @@ Analysis of real e-commerce data from Olist — Brazil's largest online marketpl
 Aspiring Data Analyst | Open to Work
 
 📧 ishagaur2004@gmail.com
-💼 [Isha Gaur](## 🙋 About Me
-**Isha Gaur**
-Aspiring Data Analyst | Open to Work
-
-📧 ishaXXXX@gmail.com
 💼 [LinkedIn](https://www.linkedin.com/in/isha-gaur-25503025a))
